@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-AURA740920MNLGVM09
+AURA740920MNLGVM09
